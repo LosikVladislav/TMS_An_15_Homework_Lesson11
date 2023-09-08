@@ -1,1 +1,1 @@
-Homework consists of three parts.
+Homework consists of fouк parts.
